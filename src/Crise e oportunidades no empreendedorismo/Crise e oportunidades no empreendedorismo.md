@@ -1,4 +1,4 @@
-# Crise e oportunidades no empreendedorismo
+# Crise e oportunidades no empreendedorismo (05/16)
 
 Empreender não é uma tarefa fácil. Investir recursos financeiros e não financeiros em uma ideia, nem sempre proporciona os ganhos esperados, por isso, ser empreendedor é, antes de tudo, ser um grande visionário. Assim, tanto o empreendedor quanto qualquer líder de um negócio, devem se acostumar a lidar com o inesperado. Por mais que o planejamento seja extremamente necessário para o sucesso da organização, aprender a lidar com as dificuldades que surgem quase diariamente, ajuda a forjar bons empreendedores e bons líderes (RAZZOLINI FILHO, 2012).
 
