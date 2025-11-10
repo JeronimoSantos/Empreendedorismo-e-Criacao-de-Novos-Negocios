@@ -4,7 +4,7 @@ Em alguns aspectos, empreender é quase um incômodo, um desequilíbrio que moti
 
 Mas esta vontade abrupta por resolver algo não pode tirar de perspectiva que o empreendedor está criando uma empresa formal, ou seja, seu processo empreendedor será muito semelhante ao processo de criação de um negócio, tal como afirma Mendes (2017, p. 31).
 
-- O processo de iniciar um novo negócio é inerente ao processo empreendedor e envolve um número razoável de variáveis que vai além da simples identificação de uma oportunidade e da resolução de um problema de cunho operacional ou administrativo até a gestão do negócio propriamente dita.
+> O processo de iniciar um novo negócio é inerente ao processo empreendedor e envolve um número razoável de variáveis que vai além da simples identificação de uma oportunidade e da resolução de um problema de cunho operacional ou administrativo até a gestão do negócio propriamente dita.
 
 Sendo um processo lógico e ordenado, o processo empreendedor compreende quatro fases distintas, começando com o reconhecimento da oportunidade, que por muitos pode ser considerado o ponto principal para o sucesso do empreendimento. Este processo também inclui, como etapas de desenvolvimento, a elaboração do plano de negócio, a identificação e organização dos recursos e a gestão dos processos, como podemos observar na figura a seguir:
 
@@ -15,13 +15,13 @@ As fases do processo empreendedor devem ser vistas como uma progressão, ou seja
 
 Sobre o risco e sua relação com o empreendedor e seu empreendimento, Mendes (2017, p. 32) afirma que:
 
-- O empreendedor sabe que todo empreendimento é uma prática extremamente arriscada, portanto os riscos de ele não se tornar bem-sucedido são elevados. Nenhum empreendedor experiente arriscaria todas as suas economias em negócios que não proporcionam ganho suficiente para compensar o risco dentro dele.
+> O empreendedor sabe que todo empreendimento é uma prática extremamente arriscada, portanto os riscos de ele não se tornar bem-sucedido são elevados. Nenhum empreendedor experiente arriscaria todas as suas economias em negócios que não proporcionam ganho suficiente para compensar o risco dentro dele.
 
 Mas a relação que o empreendedor deve manter com o risco é sempre de respeito, ou seja, ele deve reconhecer que o risco existe, assim como deve compreender qual sua sensibilidade ao risco. Desta forma, ele constrói o empreendimento de forma mais concisa e coerente, sem extravagâncias que lhe coloquem em posição de vulnerabilidade.
 
 Estudante, seria exagero afirmar que todos humanos já tiveram sua grande ideia um dia? Você já teve a ideia milionária? Bem, para empreender é preciso um ponto de partida que geralmente representa uma ideia, um novo produto, uma nova abordagem a um serviço e esta ideia tende a nascer de uma necessidade que pode ser tanto pessoal quanto de outras pessoas, consumidores frustrados com algo, por exemplo. De acordo com Mendes (2017, p. 58), temos que as oportunidades surgem da concepção de ideias que,
 
-- […] surgem de uma nova maneira de resolver um problema ou determinada situação. As necessidades também podem gerar soluções por meio da criatividade. Ao se concentrar nas soluções e não nos problemas, há muito mais chance de se encontrar aquilo que se denomina “nicho”, ou seja, um mercado que ainda não foi criado e para o qual ninguém pensou nem está preparado para atender.
+> […] surgem de uma nova maneira de resolver um problema ou determinada situação. As necessidades também podem gerar soluções por meio da criatividade. Ao se concentrar nas soluções e não nos problemas, há muito mais chance de se encontrar aquilo que se denomina “nicho”, ou seja, um mercado que ainda não foi criado e para o qual ninguém pensou nem está preparado para atender.
 
 Existem muitos casos de negócios de sucesso que nasceram da necessidade de se resolver um problema pessoal, familiar e que foi capaz de chamar a atenção do mercado, ao ponto da ideia ser encapsulada em um empreendimento e originar uma gama de produtos ou serviços.
 

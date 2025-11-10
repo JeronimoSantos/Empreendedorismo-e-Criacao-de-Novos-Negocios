@@ -31,7 +31,7 @@ Sob a ótica empresarial, de certo modo, o mundo dos negócios é feito de crise
 
 Claro que a crise relativa ao tema empreendedorismo não é a mesma que ocorre junto aos consumidores e que pode ser chamada de necessidade e carência. Para Carvalho (2018, online), a crise tem um viés econômico, ou seja:
 
-- Durante uma crise econômica há declínio da atividade econômica. A demanda por consumo diminui, o que leva à diminuição da taxa de lucro das empresas. Como as empresas passam a lucrar menos, muitas delas acabam demitindo funcionários e isso leva ao aumento de taxas de desemprego. Com mais pessoas desempregadas, a renda diminui, o que leva a um menor consumo das famílias, ou seja, menor demanda.
+> Durante uma crise econômica há declínio da atividade econômica. A demanda por consumo diminui, o que leva à diminuição da taxa de lucro das empresas. Como as empresas passam a lucrar menos, muitas delas acabam demitindo funcionários e isso leva ao aumento de taxas de desemprego. Com mais pessoas desempregadas, a renda diminui, o que leva a um menor consumo das famílias, ou seja, menor demanda.
 
 Existem as crises globais, regionais e até as que afetam apenas um determinado segmento da economia, com isso podemos perceber que cada crise tem sua identidade e forma de superação. De acordo com CARVALHO (2018, online), existem dois tipos de crises: a recessão e a depressão:
 

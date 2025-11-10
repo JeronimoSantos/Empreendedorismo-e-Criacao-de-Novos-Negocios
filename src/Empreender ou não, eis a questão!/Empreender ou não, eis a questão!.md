@@ -11,7 +11,7 @@ Ao analisar o empreendedorismo, é importante ressaltar que muitas culturas ince
 
 Um dos maiores especialistas em empreendedorismo no Brasil afirma que esse conceito tem sido amplamente difundido em todo o país, pois: 
 
-"(…) nos últimos anos, intensificando-se no final da década de 1990, mas cujo início, como marco na consolidação do tema e de sua relevância para o país, ocorreu a partir do ano 2000. No caso do Brasil, a preocupação com a criação de pequenas empresas duradouras e a necessidade da diminuição das altas taxas de mortalidade desses empreendimentos são, sem dúvida, motivos para a popularidade do termo “empreendedorismo”, que tem recebido especial atenção por parte do governo e de entidades de classe (DORNELAS, 2018, p. 22)"
+> "(…) nos últimos anos, intensificando-se no final da década de 1990, mas cujo início, como marco na consolidação do tema e de sua relevância para o país, ocorreu a partir do ano 2000. No caso do Brasil, a preocupação com a criação de pequenas empresas duradouras e a necessidade da diminuição das altas taxas de mortalidade desses empreendimentos são, sem dúvida, motivos para a popularidade do termo “empreendedorismo”, que tem recebido especial atenção por parte do governo e de entidades de classe (DORNELAS, 2018, p. 22)"
 
 O empreendedorismo acaba sendo entendido como a capacidade que as pessoas possuem de identificar um problema ou oportunidade e, a partir de experiências próprias e do seu conhecimento, elas buscam o desenvolvimento de soluções para esse negócio. Importante ressaltar também que há a necessidade de avaliar a disponibilidade de recursos para a solução desses problemas, sendo assim, é necessário avaliar todas as perspectivas que fazem parte de cada tipo de empresa que está sendo aberta.
 
